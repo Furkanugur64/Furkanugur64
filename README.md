@@ -2,7 +2,7 @@
 
 ### Hi there, I'm Furkan. 👋
 
-## Software Developer | (Student) 💻
+## Computer Engineer | (Student) 💻
 
 
 
