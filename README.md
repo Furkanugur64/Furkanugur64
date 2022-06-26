@@ -8,7 +8,7 @@
 
 
 
-### 🔗 Connect with me:
+### 🔗 Contact with me:
 
 [<img  align="left" width="40" src="https://i.hizliresim.com/exri7bb.png"  />][instagram]
 [<img  align="left" width="40" src="https://i.hizliresim.com/f1rgvb3.png"  />][twitter]
