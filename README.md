@@ -2,7 +2,7 @@
 
 ### Hi there, I'm Furkan. 👋
 
-## Computer Engineer | (Student) 💻
+## Computer Engineer  💻
 
 
 
